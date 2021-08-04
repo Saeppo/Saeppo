@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Saeppo
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning Python and AI
+- 💞️ I’m looking to collaborate on a business idea, that can change the world for humanity.
+- 📫 You can reach me on Discord: Saeppo#3489
